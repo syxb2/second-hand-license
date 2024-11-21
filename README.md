@@ -8,4 +8,4 @@
 
 本次交易的运输费用由我方（卖家）承担；退货的运费由你方（买家）承担。
 
-Copyright © 2024 Bai Jiale syxb2@qq.com
+Copyright © 2024 syxb2 syxb2@qq.com
